@@ -1,7 +1,7 @@
 ---
-title: 'My forth post'
+title: My forth post - edited
 description: Lorem ipsum dolor sit amet, consectetur adipiscing elit.
-date: 2020-07-07T00:00:00Z
+date: 2020-07-07T00:00:00.000Z
 ---
 
 Lorem ipsum dolor sit amet, consectetur adipiscing elit.
