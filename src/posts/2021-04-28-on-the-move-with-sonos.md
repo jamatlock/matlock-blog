@@ -16,3 +16,13 @@ In any case, you get the idea.
 # Price
 
 I love music but I am not what you would consider an audiophile. I'm more interested in getting a lot of bang for my buck with it comes to buying audio equipment so I'm compelled to start with price. At $399, the Move feels outside my comfort zone for a portable speaker. However, when a $100 dollar discount was offered at a major online retailer I jumped on it. I'm not sure $299 was in that comfort zone either but I fell for the sale tactic, "I can't afford not to!" My wife gave her approval because she would rather I spend more on a product, like SONOS, that I truly enjoy, rather than saving a few bucks and ending up disappointed.
+
+# Style
+
+It looks great. The charging base is low profile and the cord is even svelte. 
+
+# Performance
+
+# Overall Thoughts
+
+I dream of getting another one and setting them up for stereo
