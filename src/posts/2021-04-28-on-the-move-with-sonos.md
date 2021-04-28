@@ -23,6 +23,10 @@ It looks great. The charging base is low profile and the cord is even svelte.
 
 # Performance
 
+## Sound
+
+## Battery
+
 ## Pro Tip
 
 The Move's main home is in my kitchen. I typically keep it under a wall cabinet where it resonates more and the bass has more punch. I'm considering building a plywood box to place the speaker in when it's outside to see if the same effect can be achieved. If so I can stylize the box to make it presentable when guests are over.
