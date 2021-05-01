@@ -51,4 +51,6 @@ The Move's main home is in my kitchen. I typically keep it under a wall cabinet 
 
 # Overall Thoughts
 
-I dream of getting another one and setting them up for stereo
+I dream of getting another one and setting them up for stereo. But literally doubling the cost probably doesn't double the joy I'll get. Especially if now I have to move around two (gasp!) speakers around and start having to think more about positioning for stereo sound. Being able to set it and forget makes too much sense. Again, simplicity.
+
+If you're already an owner of other SONOS devices, you're already onboard. If not, I'm guessing there are other solutions that will suffice at a lower cost. If you're considering a multi-room solution, the Move's appeal increases dramatically--especially if $400 is within your budget. If not, wait until Black Friday.
