@@ -25,19 +25,25 @@ It looks great. The charging base is low profile and the cord is even svelte. Th
 
 ## Durability
 
-I have an aversion to exposing $400 electronic devices to the elements or dropping them for that matter. The Move does have a certain amount of heft to it however. One that suggests quality like a car door that closes with that authority. For all I know there's sand in the base but I suspect there's a serious magnet in there somewhere.
+I have an aversion to exposing $400 electronic devices to the elements or dropping them for that matter (see the importance of the handle below). The Move does have a certain amount of heft to it however. One that suggests quality like a car door that closes with that authority. For all I know there's sand in the base but I suspect there's a serious magnet in there somewhere.
 
 ## User Experience
 
-As mentioned before, ease of use and convivence is a huge selling point to me. The touch controls on the top are consistent with other SONOS devices. Whether intuitive or merely familiar they work for me and even the more technically challenged in the household. 
+As mentioned before, ease of use and convivence is a huge selling point to me. The touch controls on the top are consistent with other SONOS devices. Whether intuitive or merely familiar they work for me and even the more technically challenged in the household. My son can't be bothered with whole house audio apps so the ability to easily toggle into Bluetooth mode is important to him.
+
+A big unexpected plus? The handle on the back. Afterall, it is a portable speaker and one should be able to move (see what I did there?) it around at will and with ease. Because of the aforementioned heft of the speaker, without it I'd have to carry it around like a bag of sugar. An inelegant proposition IMO. It feels secure when I'm carrying it and inadvertently dropping it never crosses my mind.
 
 # Performance
 
 ## Sound
 
+As I admitted above, I am not an audiophile. Listening to digital music doesn't sound like nails on a chalkboard to me so I'm happy with Spotify as my main music source. That said, I am a musician so I do listen for and appreciate details when listening to certain pieces. Really I'll just put on *Aja* by Steely Dan or *Kind of Blue* and if I don't notice any blaring deficiencies I'm happy. This is the case here. All the necessary details come through. If I'm listening to my 80s Hair Band mix I'm more interested in the overall experience. In other words, just turn it up a little more and pretend my Les Paul is strapped around my neck rather than gathering dust under my bed. Again, mission accomplished.
+
+In short, I think it sounds great. Additionally, there's something about quality sound from compact devices that suggests a level of sophistication that I'm looking for. In other words, I am a little snooty, just not about getting studio quality sound out of my audio system.
+
 ## Battery
 
-I don't ride the speaker hard so I can't speak claims of 11 hour battery life. What I can say is it has never died on me. Typical battery only use cases for me are leaving it off the charging base for a few days for periodic use and outdoor dinner parties that go on for several hours. 
+I don't ride the speaker hard so I can't speak claims of 11 hour battery life. What I can say is it has never died on me. Typical battery only use cases for me are leaving it off the charging base for a few days for periodic use and outdoor dinner parties that go on for several hours.
 
 ## Pro Tip
 
