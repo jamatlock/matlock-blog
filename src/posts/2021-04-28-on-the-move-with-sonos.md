@@ -31,7 +31,7 @@ I have an aversion to exposing $400 electronic devices to the elements or droppi
 
 As mentioned before, ease of use and convivence is a huge selling point to me. The touch controls on the top are consistent with other SONOS devices. Whether intuitive or merely familiar they work for me and even the more technically challenged in the household. My son can't be bothered with whole house audio apps so the ability to easily toggle into Bluetooth mode with the press of a button is important to him.
 
-A big unexpected plus? The handle on the back. Afterall, it is a portable speaker and one should be able to move (see what I did there?) it around at will and with ease. Because of the aforementioned heft of the speaker, without it I'd have to carry it around like a bag of sugar. An inelegant proposition IMO. It feels secure when I'm carrying it and inadvertently dropping it never crosses my mind.
+A big unexpected plus? The handle on the back. Afterall, it is a portable speaker and one should be able to move (see what I did there?) it around at will and with ease. Because of the aforementioned heft of the speaker, without it I'd have to carry it around like a Chihuahua dog named Precious--of which I have first hand knowledge. In any case, an inelegant proposition IMO. It feels secure when I'm carrying it and inadvertently dropping it never crosses my mind.
 
 # Performance
 
