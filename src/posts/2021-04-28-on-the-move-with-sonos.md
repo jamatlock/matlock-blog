@@ -15,11 +15,11 @@ In any case, you get the idea. That said, as much as I love SONOS products, the 
 
 # Price
 
-I love music but I am not what you would consider an audiophile. I'm more interested in getting a lot of bang for my buck when it comes to buying audio equipment so I'm compelled to start with price. At $399, the Move feels outside of my comfort zone for a portable speaker. However, when a $100 dollar discount was offered at a major online retailer I jumped on it. I'm not sure $299 was in that comfort zone either but I fell for the sale tactic, "I can't afford not to!" My wife gave her approval because she would rather I spend more on a product, like SONOS, that I truly enjoy, rather than saving a few bucks and ending up disappointed. While it has a few glitches, the SONOS experience is nearly seamless and that makes it worth a bit of what I consider a premium price tag.
+I love music but I am not what you would consider an audiophile. I'm more interested in getting a lot of bang for my buck when it comes to buying audio equipment so I'm compelled to start with price. At $399, the Move feels outside of my comfort zone for a portable speaker. However, when a $100 discount was offered at a major online retailer I jumped on it. I'm not sure $299 was in that comfort zone either but I fell for the sale tactic, "I can't afford not to!" My wife gave her approval because she would rather I spend more on a product, like SONOS, that I truly enjoy, rather than saving a few bucks and ending up disappointed. While it has a few glitches, the SONOS experience is nearly seamless and that makes it worth a bit of what I consider a premium price tag.
 
 # Style
 
-It looks great. The charging base is low profile and the cord is even svelte. The Move's vertical footprint and less obtrusive power cord make it a vast visual improvement over the Play 3 it replaced. The neutral white color fits nicely with our minimalist-lite tendencies and blends in nicely on our stark white countertops.
+It looks great. The charging base is low profile and the cord is even svelte. The Move's vertical footprint and less obtrusive power cord make it a vast visual improvement over the Play 3 it replaced. The neutral white color fits nicely with our minimalist aspirations and blends in nicely on our stark white countertops.
 
 # Features
 
@@ -31,7 +31,7 @@ I have an aversion to exposing $400 electronic devices to the elements or droppi
 
 As mentioned before, ease of use and convivence is a huge selling point to me. The touch controls on the top are consistent with other SONOS devices. Whether intuitive or merely familiar they work for me and even the more technically challenged in the household. My son can't be bothered with whole house audio apps so the ability to easily toggle into Bluetooth mode with the press of a button is important to him.
 
-A big unexpected plus? The handle on the back. Afterall, it is a portable speaker and one should be able to move (see what I did there?) it around at will and with ease. Because of the aforementioned heft of the speaker, without it I'd have to carry it around like a Chihuahua dog named Precious--of which I have first hand knowledge or a five pound bag of sugar. An inelegant proposition IMO. It feels secure when I'm carrying it and inadvertently dropping it never crosses my mind.
+A big unexpected plus? The handle on the back. Afterall, it is a portable speaker and one should be able to move (see what I did there?) it around at will and with ease. Because of the aforementioned heft of the speaker, without it I'd have to carry it around like a Chihuahua dog named Precious--of which I have first hand knowledge--or a five pound bag of sugar. An inelegant proposition IMO. It feels secure when I'm carrying it and inadvertently dropping it never crosses my mind.
 
 # Performance
 
@@ -39,7 +39,7 @@ A big unexpected plus? The handle on the back. Afterall, it is a portable speake
 
 As I admitted above, I am not an audiophile. Listening to digital music doesn't sound like nails on a chalkboard to me so I'm happy with Spotify as my main music source. That said, I am a musician so I do listen for and appreciate details when listening to certain pieces. Really I'll just put on *Aja* by Steely Dan or *Kind of Blue* and if I don't notice any blaring deficiencies I'm happy. This is the case here. All the necessary details come through. If I'm listening to my 80s Hair Band mix I'm more interested in the overall experience. In other words, just turn it up a little more and pretend my Les Paul is strapped around my neck rather than gathering dust under my bed. Again, mission accomplished.
 
-In short, I think it sounds great. Additionally, there's something about quality sound from compact devices that suggests a level of sophistication that I'm looking for. In other words, I am a little snooty, just not about getting studio quality sound out of my audio system.
+In short, I think it sounds great. Additionally, there's something about quality sound from compact devices that suggests a level of sophistication that I'm looking for. In other words, I am a little snooty. Just not about getting studio quality sound out of my audio system.
 
 ## Battery
 
@@ -47,7 +47,7 @@ I don't ride the speaker hard so I can't speak claims of 11 hour battery life. W
 
 ## Pro Tip
 
-The Move's main home is in my kitchen. I typically keep it under a wall cabinet where it resonates more and the bass has more punch. I'm considering building a plywood box to place the speaker in when it's outside to see if the same effect can be achieved. If so I can stylize the box to make it presentable when guests are over.
+The Move's main home is in my kitchen. I typically keep it under a wall cabinet where it resonates more and the bass has more punch. I'm considering building a plywood box to place the speaker in when it's outside to see if the same effect can be achieved. If so, I can stylize the box to make it presentable when guests are over.
 
 # Overall Thoughts
 
