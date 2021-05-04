@@ -1,8 +1,8 @@
 {
-  "site_name": "Starter",
-  "title": "Eleventy Starter Boilerplate",
-  "description": "Starter code for your 11ty blog Boilerplate",
+  "site_name": "Matlock",
+  "title": "The Matlock Blog",
+  "description": "A moderately interesting cross section of pop culture",
   "url": "https://example.com",
   "locale": "en",
-  "author": "Anonymous"
+  "author": "John Matlock"
 }
